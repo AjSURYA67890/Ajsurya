@@ -17,7 +17,6 @@
 
 - 📫 How to reach me **jsurya31102001@gmail.com**
 
-- 📄 Know about my experiences [https://in.docworkspace.com/d/sIHv90LSUAsXT470G](https://in.docworkspace.com/d/sIHv90LSUAsXT470G)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
